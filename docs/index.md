@@ -14,7 +14,7 @@ subtitle: |
 
 date: |
 
-  <center>16 de janeiro de 2021</center>
+  <center>19 de janeiro de 2021</center>
 
 summary_depth: 5
 summary_float:
