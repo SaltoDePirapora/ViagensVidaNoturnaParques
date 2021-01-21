@@ -4,17 +4,17 @@ title: |
   
   <center>Carlinhos da Malvina: Algumas Histórias</center> 
   
-  <center>![](Imagens/O Degas.jpg)</center>
+  <center>![](Imagens/DSC04539P.jpg)</center>
   
   <center>Autor: Carlos Antunes de Souza</center>
 
 subtitle: |
 
-  <center><span style="color:blue">CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO: VIAGENS, VIDA NOTURNA, PARQUES ...</center>
+  <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: viagens, vida noturna, parques ...</center>
 
 date: |
 
-  <center>19 de janeiro de 2021</center>
+  <center>21 de janeiro de 2021</center>
 
 summary_depth: 5
 summary_float:
@@ -32,8 +32,8 @@ documentclass: book
 
 suppress-bibliography: yes
 link-citations: no
-github-repo: SaltoDePirapora/DonaMalvina
-description: "JAZZ, BLUES, MPB, VIAGENS, COMIDINHAS, FILMES E OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
+github-repo: SaltoDePirapora/ViagensvidaNoturnaParques
+description: "VIAGENS, COMIDINHAS, LOCAIS INTERESSANTES OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
 ---
 
 # Introdução {-}
