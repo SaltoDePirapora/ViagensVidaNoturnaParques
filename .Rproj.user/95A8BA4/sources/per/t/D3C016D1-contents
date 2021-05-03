@@ -184,7 +184,13 @@ Parabéns ao Turquinho por sua inventividade, tenacidade, persistência e criati
 No viaduto Nove de Julho, centro de São Paulo, imediações do início da Rua Augusta. Tinha esse nome porquê estava ao lado da redação do jornal Estadão. Tinha um longo balcão em formato de “U” e servia refeições ligeiras do tipo *comercial* ou *prato feito* mas o  sanduíche de pernil era o seu carro chefe. Um enorme pernil, de cerca de 8 kg, assado no forno, repousava dentro de uma assadeira, rodeado for um farto molho de tomates, cebolas e pimentões coloridos. Para o preparo do  sanduíche eram cortadas fatias finas do cheiroso pernil e esquentadas na*chapa onde o pão francês, aberto já dourava na mesma chapa. As fatias dispostas no “filãozinho* e cobertas com o molho espesso completavam a maravilha de lanche. Nos meados dos anos noventa, já raiando a virada da década, estive por lá com amigos. Para incrementar a história vi no P.G. (Professor Google) que o bar foi fundado em 5/12/1968 e desmanchava cerca de 30 pernis por dia! Era considerado o bar mais democrático de Sampa, pois recebia jornalistas, artistas, comerciários e funcionava vinte e quatro horas por dia. Somente o faturamento com a venda do sanduiche de pernil já garantia a sobrevivência do bar.
 
 ## Ponto Chic 
-Em 2017 completou 80 anos de existência e por lei foi declarado patrimônio cultural e imaterial de São Paulo. Tudo começou na matriz do Largo do Paissandu, que depois abriu filiais em Perdizes e no Paraíso. Na pesquisa do Google não consta mas, conheci também a loja de Moema, na Avenida Ibirapuera, em frente ao shopping de mesmo nome. Um jornalista chamado Casimiro Pinto Neto, apelidado de Bauru, chegou ao bar com muita fome e pediu ao garçon para fazer um sanduíche incrementado. Orientou que derretesse os queijos, acrescentasse o rosbife, rodelas de tomate e pepino em conserva e quando estava degustando o *mata fome* chegou um colega e pediu para experimentar o lanche, que adorou e gritou para o chapeiro : “Oh russo me faz aí um sanduíche igual ao do Bauru” e o nome pegou e o lanche foi sendo mais incrementado ainda com quatro queijos: mussarela, gouda, estepe e suíço fundidos na chapa com uma tampa que não deixava escorrer para os lados. No pão aberto tostado na chapa era colocada a massa fundida e acrescentados os demais ingredientes. Foi reduto de encontro dos modernistas Mário de Andrade, Anitta Malfatti e inclusive Monteiro Lobato. Continua aberto até hoje, pelo que eu saiba e acabou gerando o bauru que conhecemos hoje com presunto cozido, queijo e tomate mas a receita original é muito melhor, sem dúvida. Serviam também um geladíssimo chopp da Brahma. José Carlos Alves de Souza, de 71 anos, que era o dono do tradicional Ponto Chic morreu no domingo 28/02/2021, vitimado pela COVID-19.
+Em 2017 completou 80 anos de existência e por lei foi declarado patrimônio cultural e imaterial de São Paulo. Tudo começou na matriz do Largo do Paissandu, que depois abriu filiais em Perdizes e no Paraíso. Na pesquisa do Google não consta mas, conheci também a loja de Moema, na Avenida Ibirapuera, em frente ao shopping de mesmo nome. Um jornalista chamado Casimiro Pinto Neto, apelidado de Bauru, chegou ao bar com muita fome e pediu ao garçon para fazer um sanduíche incrementado. Orientou que derretesse os queijos, acrescentasse o rosbife, rodelas de tomate e pepino em conserva e quando estava degustando o *mata fome* chegou um colega e pediu para experimentar o lanche, que adorou e gritou para o chapeiro : “Oh russo me faz aí um sanduíche igual ao do Bauru” e o nome pegou e o lanche foi sendo mais incrementado ainda com quatro queijos: mussarela, gouda, estepe e suíço fundidos na chapa com uma tampa que não deixava escorrer para os lados. No pão aberto tostado na chapa era colocada a massa fundida e acrescentados os demais ingredientes. Foi reduto de encontro dos modernistas Mário de Andrade, Anitta Malfatti e inclusive Monteiro Lobato. Continua aberto até hoje, pelo que eu saiba e acabou gerando o bauru que conhecemos hoje com presunto cozido, queijo e tomate mas a receita original é muito melhor, sem dúvida. Serviam também um geladíssimo chopp da Brahma. José Carlos Alves de Souza, de 71 anos, que era o dono do tradicional Ponto Chic morreu no domingo 28/02/2021, vitimado pela COVID-19.    
+
+## Ferro´s Bar 
+Dominou a cena na década de 70 e era um bar muito *ousado* para a época pois a frequência era quase que exclusivamente de gays e lésbicas, num tempo em que isso era abominável. Eu disse *quase que* porque este *caipirinha xereta* foi lá conferir o panorama nada agradável. Saímos correndo.    
+
+## Michel
+Boate de *travecos* perto do Hilton, Rua Araújo, se não me engano. E olha que tinha homens travestidos de belas e exuberantes mulheres. Eu que trabalhava como comprador da Carambeí de São Roque, adorava levar os *caipiras* de São Roque no Michel que ficavam embasbacados com a beleza das *mulheres* até que eu revelava que era tudo *macho*.    
 
 ## Comidas e acepipes
 
@@ -219,6 +225,7 @@ Sempre gostei de brincar na cozinha. Mesmo porquê fazer “sem obrigação” e
 **Fritada ou farofa  de içá** – na época certa as formigas içá ou tanajura saem em bandos e há uma verdadeira caçada para fazer os pratos que ainda hoje são tradição na serra da bocaina e no vale do paraíba. Em Salto de Pirapora corria todo mundo, tresloucadamente  “catá içá”. Era uma farra e tanto. Não me lembro se tive coragem de experimentar.       
 **Sopa de mandioca ou vaca atolada** – a carne pode ser costela ou coxão mole. A mandioca “puxa” o sabor da carne formando um caldo grosso muito saboroso, além dos nacos de carne e pedacinhos de mandioca. Tenho no meu quintal a “mandioca pão” excepcional para esse prato. Eu acabei criando um jeito diferente de comer a mandioca: cozinho com sal e alho, retiro os pedaços macios bem quentes e rego azeite por cima. Menos trabalhosa e mais saudável do que a mandioca frita.       
 **Sopa (ou mingau) de milho verde com frango** - Tempera-se o frango a gosto, com sal, limão e pimenta do reino e deixa-se por um tempo para *pegar* o tempero. Pode-se usar o frango inteiro, caipira se possível, ou os pedaços de preferência. Frita-se bem o frango, com cebola e alho picadinho. Com ele douradinho adiciona-se boa quantidade de água e deixa-se em fogo baixo, para formar aquele caldo denso e saboroso. Enquanto isso, rala-se o milho verde ou corta-se com uma faca para tirar do sabugo e bate-se no liquidificador com pouquinha água. A pasta resultante deve passar por uma peneira fininha retirando o farelo todo. O caldo resultante vai para a panela em que está o frango, em fogo brando. Deve-se mexer de vez em quando sem deixar grudar no fundo. Vai engrossar. Se engrossar muito coloque mais água quente. Quando estiver já cozido e numa consistência de mingau, coloque cambuquira limpa e em pedaços não muito pequenos. Na cidade grande onde é difícil achara cambuquira, pode-se utilizar abobrinha verde das bem novinhas, cortadas em palitos grossos sem as sementes. Uma outra possibilidade, mais difícil fora de Minas Gerais, é colocar folhas de [ora pro nobis](https://pt.wikipedia.org/wiki/Pereskia_aculeata). Todas as três opções são deliciosas, principalmente se adicionarmos limão no prato! Atenção: não jogue o farelo fora! Veja o bolo delicioso que dá prá fazer com ele logo abaixo!.
+**Bolinho caipira** – Um *salgadinho* muito comum, popular e gostoso, dentro da culinária regional. Um bolinho com massa de farinha de milho, com recheio de frango desfiado, molhadinho. Frito, ficava com uma cor dourada, *de dar água na boca*.  
 
 **Doces caipiras**
 
@@ -233,4 +240,50 @@ Sempre gostei de brincar na cozinha. Mesmo porquê fazer “sem obrigação” e
 **Shiringa** – Nada mais é do que o *papo de anjo*  que consiste numa massa frita e recheada embebida numa calda de açúcar e cravo. Minha mãe chamava de shiringa porquê a massa era colocada num pano e escorrida por uma espécie de funil diretamente na gordura quente. Como o processo emulava o êmbolo de uma seringa, que era chamada por aqui de “shiringa”.       
 **Doce de cidra, figo, mamão ou abóbora em calda** – Cidra ralada e cozida numa calda de açúcar e cravo. O mamão era cortado em pedaços ou em tiras e deixado na cal virgem para ficar durinho por fora e macio por dentro, a abóbora também era cortada em pedaços maiores e passada pela cal (dá um resultado semelhate usando fermento químico), O figo era descascado com muito cuidado para tirar aquela pelezinha e no processo de cozimento  eram furados com garfo para penetrar a calda. Todos incomensuravelmente deliciosos. Cuidado: no caso do mamão e da abóbora, vão para a água com a cal por pouco tempo (uns 10 minutos) e depois devem ser lavados muito bem antes de ir para o cozimento na calda.       
 **Queijadinhas** – uma massa de coco ralado e ovos  dentro de  pequenas forminhas redondas  e papel no mesmo formato  para desgrudarem com facilidade depois. Levadas ao forno saiam com o coco e a crosta levemente queimados. Indescritível o sabor.      
-**Resumo da ópera** - como nossas mães trabalhavam incansavelmente para dar conta de tantas tarefas! Já narrei a epopeia da Dona Malvina numa véspera de Natal toda atarefada e de olho no relógio para não perder a *Missa do Galo*.      
+**Resumo da ópera** - como nossas mães trabalhavam incansavelmente para dar conta de tantas tarefas! Já narrei a epopeia da Dona Malvina numa véspera de Natal toda atarefada e de olho no relógio para não perder a *Missa do Galo*.     
+
+## Restaurantes praianos
+###Boa Vista
+Em São Vicente, famoso principalmente pelas suas enormes paellas. Vi um garçon carregando uma travessa fumegante de cerca de uns 80 centímetros. Explicou que servia de 12 a 15 pessoas. “Chose de lóc” como diria Jô Soares.
+
+###Vista ao Mar
+Outro restaurante famoso pelos frutos do mar, camarões, peixadas com pirão ou caldeiradas, com as postas do peixe anjo nadando num molho de tomates e pimentões. Ficava perto de onde se toma a balsa para fazer a travessia para o Guarujá. Pesquisando no PG vi que em 2.020 iria completar meio século de existência. Mas o dono reclamava que Santos não era mais a mesma cidade fervilhante  dos tempos de brilho dos clubes Sírio Libanês, Atlântico, Caiçara, Ilha Porchat etc. todos falidos, segundo o dono, o  espanhol Agustin Alvarez Perez com 79 anos  em 2.020 e sem nenhuma vontade de fechar as portas, apesar das crises à que sobreviveu. Imagine-se agora em época de pandemia.  
+
+###Restaurante do Dalmo e depois do Joca
+Este ficava em Bertioga, depois da travessia da balsa. Sua especialidade era o lambe-lambe: uma travessa de mariscos nadando no espesso molho de tomate e pimentões e você pegava o marisco com a mão mesmo, chupando o molusco junto com o caldo bem temperado. Rolava uma história que o Joca era um garçon que “bateu a carteira” do Dalmo, roubando sua mulher e assumindo a titularidade do estabelecimento. Abriu uma filial no Itaim em Sampa mas, teve breve trajetória.
+
+###Café Floresta
+Um marco da cidade santista localizado na praça logo no início da Avenida Ana Costa, outro marco da cidade. Um café forte e bem tirado, de excelente paladar. Abriu uma filial na parte comercial do antológico Edifício  Copan, projeto de Niemeyer.
+
+###Rufino´s no Guarujá
+Restaurante “classudo” na praia da Enseada, com grandes janelas envidraçadas dando vista para o mar. Eu só pedia o risoto com camarões “pistola” nadando num arroz bem molhado e ainda vinha com  ovos cozidos  que absorviam o caldo do camarão muito bem temperado. 
+
+##Restaurantes em Sorocaba e Região
+
+**Piedade**
+
+###Bisão Dourado
+Ficava bem no centro perto do Banco do Brasil. A construção era inteira de madeira, sustentada por grossas toras e janelas amplas e envidraçadas. O dono era o Shú, que me contou ter vindo muito em bailes em Salto de Pirapora. Não me lembro o nome do prato mas comia ali um filé mignon respeitável.
+
+###Piccin
+Fora da cidade, no início da Rodovia, sentido Vila Élvio e Pilar do Sul. Um “self service” com excelentes assados: leitões, frangos, costelas etc. 
+
+###Estação Boca do Monte
+Interessantíssimo montado no “corpo” de um avião e as mesas dando vista às matas circundantes pelas janelinhas quase ovaladas do avião. Apresentava uma boa cozinha japonesa. Da última vez que passei por lá estava em estado de abandono. 
+
+###Apiário, Capril e Fazenda de Camarões
+Durou pouco mas era um belo passeio. Na péssima estrada de terra que liga Piedade a Votorantim.  Lugar amplo com arvorismo e uma criação de camarões cinza da Malásia,  que eram servidos no restaurante embaixo das árvores, com espagheti ou em omeletes deliciosas. Tinha enormes tanques cobertos que mostravam as fases da criação do camarão. Me impressionou o tamanho de um reprodutor com longos bigodes. No capril podiam se ver os alegres cabritinhos pulando que nem crianças.
+
+**Araçoiaba da Serra**
+
+###Fazenda Campo Largo
+Um belíssimo espaço, tudo aberto e ótimo para tempos de pandemia. No estacionamento você deixa seu carro na sombra de frondosos  “fícus benjamin”. Debaixo de uma cobertura, sem paredes laterais mesas dispostas em frente a um palco onde rola música sertaneja ao vivo. Não é minha praia mas para poder dançar aceito qualquer ritmo. Um buffet no sistema “self service” de ótima qualidade e um coberto  ao ar livre com churrasqueiras diversas, incluindo as grelhas argentinas e uruguaias. Costela de chão em peças inteiras, linguiças das mais variadas, cupim etc etc. servidos à vontade. Pelo preço de R$ 50,00 representa um ótimo custo/benefício. Grandes gramados com redes de balanço para um cochilo depois da comilança e cama elástica para as crianças completam o cardápio de opções disponíveis. Se a música estiver convidativa para dançar eu dispenso o cochilo. 
+
+###Costela da Serra
+Quase  no centro da cidade num charmoso prédio que lembra um chalé é servido um respeitável e delicioso rodízio também no sistema “self service”
+
+###Fazenda Imperial
+No bairro do Jundiacanga um espaço igualmente fantástico, até maior que o Fazenda Campo Largo e trabalhando no mesmo sistema mas não cheguei a almoçar. 
+
+###Sítio Doce Campo
+O lugar é mais interessante pelas instalações rurais do que propriamente pela comida. Casa de pau a pique com pé direito baixo: a Patrícia teve que curvar a cabeça para entrar. Mobiliada com móveis rústicos  antigos e dotada de bules, chaleiras e caneca rudimentares, típicas da roça. Tem também um fogão “de lenha”. É uma verdadeira imersão no passado, que tantos de nós carregamos das nossas raízes. Espaço amplo inclusive com animais para cavalgar. 
