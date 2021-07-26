@@ -3,10 +3,10 @@ lang: pt-BR
 title: |
   <center>Algumas Histórias</center> 
 subtitle: |
-  <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: viagens, vida noturna, parques ...</center>
+  <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: viagens, vida noturna, parques, comidas ...</center> 
+  <center><div style="font-size: 25px">Carlos Antunes de Souza</center></p>
 author: |
-  <center><div style="font-size: 25px">Carlos Antunes de Souza</center>
-  <center>![](Imagens/DSC04539.jpg)</center>
+   <center>![](Imagens/DSC04539.jpg)</center>
 date: <center>Postado em 26 de julho de 2021</center>
 
 geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
