@@ -5,13 +5,15 @@
     "dirty" : false,
     "encoding" : "UTF8",
     "folds" : "",
-    "hash" : "2123941915",
+    "hash" : "0",
     "id" : "DDCE0CE5",
     "lastKnownWriteTime" : 1601319166,
     "last_content_update" : 1601319166,
     "path" : "C:/Users/Vermelho/OneDrive/GitHub/Viagens/07-ibirapuera.Rmd",
     "project_path" : "07-ibirapuera.Rmd",
     "properties" : {
+        "cursorPosition" : "54,887",
+        "scrollLine" : "46"
     },
     "relative_order" : 3,
     "source_on_save" : false,

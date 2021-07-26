@@ -192,6 +192,27 @@ Dominou a cena na década de 70 e era um bar muito *ousado* para a época pois a
 ## Michel
 Boate de *travecos* perto do Hilton, Rua Araújo, se não me engano. E olha que tinha homens travestidos de belas e exuberantes mulheres. Eu que trabalhava como comprador da Carambeí de São Roque, adorava levar os *caipiras* de São Roque no Michel que ficavam embasbacados com a beleza das *mulheres* até que eu revelava que era tudo *macho*.    
 
+## As Bailarinhas da Dança do Ventre do Khan el Khalili
+Fica no Paraiso, rua  Eduardo de Queiroz Aranha.   
+
+Descobri por acaso que poderia *alugar* uma dessas lindas moças e exímias dançarinas do ventre para *sacudir* uma festa ou um encontro de amigos. Usei do recurso duas vezes, ao custo de cinquenta dólares cada ocasião.   
+
+Certa vez os amigos do tênis do Swiming Center do Vergueiro em São Paulo combinaram um churrasco: coisa só de macho. Contatei a Bianca, combinamos preços e detalhes, ela me deu um CD com as músicas para a sua apresentação. Disfarçadamente levei o toca cds e fiquei na moita. Fui recebê-la lá fora  e a  encaminhei para o vestiário para se preparar.  Mostrei o caminho, um cantinho escondido entre as quadras de tênis com a churrasqueira.    
+
+A um sinal dela coloquei o cd para rodar e ela surgiu do meio da escuridão, com a barriguinha de fora, saia larga na linha dos quadris e um mini colete.  Entrou dançando com aquele balanço do ventre maravilhoso, pernas, rosto e colo de *cair o queixo*.  Os amigos ficaram estupefatos e boquiabertos ao ver surgir do breu aquela figura maviosa com graciosos meneios do corpo e ao som da música árabe envolvente com seus alaúdes e violinos. Deixei todos embasbacados mas logo descobriram o autor da façanha. Difícil resistir e o Alexandre tentou conquistar, convidou para ficar na festa ou sair para jantar, mas ela, muito profissionalmente, agradeceu e caiu fora noite adentro.    
+
+
+Na segunda ocasião foi marcado um churrasco aqui em Salto na fazenda de laranjas do Plínio, um ex sócio.    
+
+O local afastado da cidade, tinha quatro charmosos chalés, uma piscina e uma churrasqueira. No meio do nada, no meio da escuridão.    
+
+Dei duro para descobrir uma dançarina em Sorocaba e ainda muito ressabiada por se tratar de uma festa só de barbudos e num local distante. Dei-lhe a minha palavra como garantia e ela topou. Fui buscá-la e,  sorrateiramente a acomodei no chalé do Plínio. Ela já trocada foi vista de relance pelo Munir,  sócio do Jardim Ilha das Flores e foi contar  ao Plínio que tinha visto uma mulher lá dentro. Este descartou dizendo que ele estava tendo visões noturnas e ficou por isso mesmo.    
+
+No meio da festa, no mesmo esquema, ela irrompe da escuridão de uma noite maravilhosamente estrelada e empunhando um cajado todo adornado de fitas multicolores, vem para o meio da reunião. O Zezo do Segundo Cartório de Registro de Sorocaba, que levava o copo de cerveja à boca, parou no meio e estaqueou com a boca aberta e o copo e o braço paralisados no ar. O difícil foi conter os mais afoitos que queriam fazer uma vaquinha para que ela fizesse um strip-tease e aí tive que impor minha autoridade e explicar que era uma profissional fazendo o seu trabalho e apenas isso.    
+
+Escoltei-a para o meu carro e a levei de volta ao Posto Trevão, na entrada da cidade onde ela tinha deixado seu carro. Voltando me deu trabalho acalmar os já bêbados, lamentando que eu a tivesse levado embora. 
+
+
 ## Comidas e acepipes
 
 ### Queijo da Serra da Estrela em Portugal
@@ -240,6 +261,9 @@ Sempre gostei de brincar na cozinha. Mesmo porquê fazer “sem obrigação” e
 **Shiringa** – Nada mais é do que o *papo de anjo*  que consiste numa massa frita e recheada embebida numa calda de açúcar e cravo. Minha mãe chamava de shiringa porquê a massa era colocada num pano e escorrida por uma espécie de funil diretamente na gordura quente. Como o processo emulava o êmbolo de uma seringa, que era chamada por aqui de “shiringa”.       
 **Doce de cidra, figo, mamão ou abóbora em calda** – Cidra ralada e cozida numa calda de açúcar e cravo. O mamão era cortado em pedaços ou em tiras e deixado na cal virgem para ficar durinho por fora e macio por dentro, a abóbora também era cortada em pedaços maiores e passada pela cal (dá um resultado semelhate usando fermento químico), O figo era descascado com muito cuidado para tirar aquela pelezinha e no processo de cozimento  eram furados com garfo para penetrar a calda. Todos incomensuravelmente deliciosos. Cuidado: no caso do mamão e da abóbora, vão para a água com a cal por pouco tempo (uns 10 minutos) e depois devem ser lavados muito bem antes de ir para o cozimento na calda.       
 **Queijadinhas** – uma massa de coco ralado e ovos  dentro de  pequenas forminhas redondas  e papel no mesmo formato  para desgrudarem com facilidade depois. Levadas ao forno saiam com o coco e a crosta levemente queimados. Indescritível o sabor.      
+**Balas puxa-puxa** - Assim como as balas de coco e ovos eram vendidas nas ruas em tabuleiros e se grudassem num dente mole não precisava a mãe se dar ao trabalho de amarrar aquela linha no dente e dar um puxão, à nosso contragosto. Eram embrulhadas uma a uma em papel de seda  e feitas de uma calda à base de melado e ainda me lembro que eram estendidas na pia sendo dobradas várias vezes formando um cordão escuro. Para misturar   eram penduradas  num prego na parede e repuxadas várias vezes ainda quentes. O nome puxa puxa vem da maneira de fazer, formando como que uma cobra longa e dobrando e puxando, dobrando e puxando até chegar ao ponto certo.      
+**Quebra queixo** - Também eram vendidos em tabuleiros e o vendedor brandia uma matraca para chamar as crianças. A massa do doce cobria todo o tabuleiro e era tirada em *talhadas* com o auxílio de uma espátula e dava gosto de ver como ele tirava as porções iguais com maestria no manuseio do instrumento e nos entregava em um pedaço de papel pardo, daqueles de embrulhar banha no armazém. A base da receita é açúcar queimado e coco ralado deixando pequenos pedaços de coco que se transformam no ponto alto da guloseima. O nome de quebra queixo vem, obviamente, da dureza do doce que tinha que ser degustado como bala e não dando grandes mordidas. O queixo não quebraria mas um dente de leite, com certeza.    
+**Balas de alfenis** - Na pesquisa do Professor Google descobri que o nome correto do doce é alfenim, feito apenas à base de açúcar, água e vinagre e sua origem remonta às festas do Espírito Santo na “terrinha portuguesa” mais precisamente na Ilha Terceira nos Açores. O nome deriva da brancura do doce. Também eram vendidas em tabuleiros nas ruas ou nas vendas, acondicionadas em vistosos potes de vidro, quando então eram vendidas a peso. Aqui a gente comprava por unidades de pessoas que vendiam na rua.    
 **Resumo da ópera** - como nossas mães trabalhavam incansavelmente para dar conta de tantas tarefas! Já narrei a epopeia da Dona Malvina numa véspera de Natal toda atarefada e de olho no relógio para não perder a *Missa do Galo*.     
 
 ## Restaurantes praianos
