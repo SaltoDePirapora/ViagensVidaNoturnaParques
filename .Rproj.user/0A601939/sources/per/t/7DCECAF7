@@ -1,26 +1,24 @@
 {
-    "id": "DD09F8BB",
-    "path": "C:/Users/Vermelho/OneDrive/GitHub/Viagens/07-ibirapuera.Rmd",
-    "project_path": "07-ibirapuera.Rmd",
+    "id": "7DCECAF7",
+    "path": "C:/Users/Vermelho/OneDrive/GitHub/Viagens/03-ibirapuera.Rmd",
+    "project_path": "03-ibirapuera.Rmd",
     "type": "r_markdown",
     "hash": "2494303058",
     "contents": "",
     "dirty": false,
-    "created": 1641316346390.0,
+    "created": 1641320454970.0,
     "source_on_save": false,
-    "relative_order": 1,
+    "relative_order": 4,
     "properties": {
         "source_window_id": "",
-        "Source": "Source",
-        "cursorPosition": "60,446",
-        "scrollLine": "0"
+        "Source": "Source"
     },
     "folds": "",
     "lastKnownWriteTime": 1641318020,
     "encoding": "UTF8",
     "collab_server": "",
     "source_window": "",
-    "last_content_update": 1641318020839,
+    "last_content_update": 1641318020,
     "read_only": false,
     "read_only_alternatives": []
 }

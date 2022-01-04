@@ -3,7 +3,7 @@
     "path": "C:/Users/Vermelho/OneDrive/GitHub/Viagens/index.Rmd",
     "project_path": "index.Rmd",
     "type": "r_markdown",
-    "hash": "3816349011",
+    "hash": "1674199827",
     "contents": "",
     "dirty": false,
     "created": 1641318229628.0,
@@ -12,15 +12,15 @@
     "properties": {
         "source_window_id": "",
         "Source": "Source",
-        "cursorPosition": "32,357",
+        "cursorPosition": "32,21",
         "scrollLine": "9"
     },
     "folds": "",
-    "lastKnownWriteTime": 1641319411,
+    "lastKnownWriteTime": 1641320485,
     "encoding": "UTF8",
     "collab_server": "",
     "source_window": "",
-    "last_content_update": 1641319411767,
+    "last_content_update": 1641320485556,
     "read_only": false,
     "read_only_alternatives": []
 }
