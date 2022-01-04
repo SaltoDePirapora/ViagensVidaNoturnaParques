@@ -20,7 +20,6 @@ hotel-rita-hopner
 passeios
 fábrica-de-vidros
 viagem-de-volta
-chile-réveillon-de-2009-hotel-providence-bairro-da-providência
 passeios-1
 shopping-parque-arauco
 shopping-alto-de-las-leonas
@@ -113,23 +112,7 @@ as-bailarinhas-da-dança-do-ventre-do-khan-el-khalili
 comidas-e-acepipes
 queijo-da-serra-da-estrela-em-portugal
 as-comidinhas-do-degas-aqui
-comidas-da-roça-ou-delícias-caipiras
 restaurantes-praianos
-boa-vista
-vista-ao-mar
-restaurante-do-dalmo-e-depois-do-joca
-café-floresta
-rufinos-no-guarujá
-restaurantes-em-sorocaba-e-região
-bisão-dourado
-piccin
-estação-boca-do-monte
-apiário-capril-e-fazenda-de-camarões
-fazenda-campo-largo
-costela-da-serra
-fazenda-imperial
-sítio-doce-campo
-restauranes-do-além-mar
 pedro-dos-leitões
 el-sobriño-de-botin
 ibirapuera-e-outros-espaços-públicos-paulistanos
@@ -145,3 +128,4 @@ figuras-folclóricas-do-parque
 quadras-de-esportes
 museu-da-casa-brasileira-da-faria-lima
 sesc-paulista-casarão-das-rosas-e-itaú-cultural
+transporte-de-passageiros-por-via-fluvial-pelas-marginais-de-são-paulo

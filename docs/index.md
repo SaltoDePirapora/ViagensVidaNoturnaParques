@@ -1,13 +1,13 @@
 ---
 lang: pt-BR
 title: |
-  <center>Algumas Histórias</center> 
+  <center><span style="color:blue">Algumas Histórias</center> 
 subtitle: |
   <center><span style="color:blue">Carlinhos da Malvina, um bom vivant na sua própria definição: viagens, vida noturna, parques, comidas ...</center> 
-  <center><div style="font-size: 25px">Carlos Antunes de Souza</center></p>
 author: |
    <center>![](Imagens/DSC04539.jpg)</center>
-date: <center>Postado em 26 de julho de 2021</center>
+   <center><div style="font-size: 25px">Carlos Antunes de Souza</center></p>
+date: <center>Postado em 04 de janeiro de 2022</center>
 
 geometry: "left=2cm,right=2cm,top=2cm,bottom=2cm"
 fontsize: 12pt
@@ -24,10 +24,11 @@ link-citations: no
 github-repo: SaltoDePirapora/ViagensvidaNoturnaParques
 description: "VIAGENS, COMIDINHAS, LOCAIS INTERESSANTES OUTRAS DIVAGAÇÕES BY CARLINHOS DA MALVINA, UM BOM VIVANT NA SUA PRÓPRIA DEFINIÇÃO"
 ---
-#- {-}
-
 # Introdução {-}
 <div style="text-align: justify">
 Muito bem: não tenho a menor pretensão de arrastar seguidores então vou escrevendo e mudando de assunto sem preocupação com a ordem cronológica ou um roteiro estudado ou pré estabelecido. A ideia é fazer apenas um registro de todas as experiências boas que vivi, assisti ou presenciei. Como já vivi bastante e pretendo viver muito mais, vou ter muita história para contar. Em matéria de viver eu quero dar VDO como se dizia no tempo do fusca que só marcava 120 km/h e depois embaixo estava escrito VDO que seria 140 ou 150 km/h.      
 Veja que este não é um livro de História no sentido científico da palavra e, portanto, está sujeito as traições da minha memória. Sinta-se a vontade para nos comunicar algum deslize ou falha nas nossas recordações.     
 Então, como dizia o bordão do contador de histórias do Castelo Rá-tim-bum, na TV Cultura, senta que lá vem história!       
+
+**Editor:** atua com auxiliar na edição destas reminiscências Antonio José Ribeiro Dias, natural de Salto de Pirapora, hoje vivendo no Rio de Janeiro e, um pouco, em Juiz de Fora. Para quem ainda não ligou o nome a pessoa, ele também é conhecido como Vermelho, Zug, Chacrinha e Toninho da Dona Rosa, dentre outros apodos, como gosta de escrever o Carlinhos.
+
