@@ -266,53 +266,65 @@ Sempre gostei de brincar na cozinha. Mesmo porquê fazer “sem obrigação” e
 **Balas de alfenis** - Na pesquisa do Professor Google descobri que o nome correto do doce é alfenim, feito apenas à base de açúcar, água e vinagre e sua origem remonta às festas do Espírito Santo na “terrinha portuguesa” mais precisamente na Ilha Terceira nos Açores. O nome deriva da brancura do doce. Também eram vendidas em tabuleiros nas ruas ou nas vendas, acondicionadas em vistosos potes de vidro, quando então eram vendidas a peso. Aqui a gente comprava por unidades de pessoas que vendiam na rua.    
 **Resumo da ópera** - como nossas mães trabalhavam incansavelmente para dar conta de tantas tarefas! Já narrei a epopeia da Dona Malvina numa véspera de Natal toda atarefada e de olho no relógio para não perder a *Missa do Galo*.     
 
+**Delícias do campo, ou seja, do pasto**   
+
+**Gabiroba** – quase uma goiabinha, meio azedinha ou muito doce no auge da maturação. Delícia das delícias comer no campo. Cada achado dos pequenos pés com frutos maduros tinha sabor de vitória. Também *davam* em  árvores.    
+**Pitanga** – Esta era o supra sumo das frutas campesinas. De tão vermelhas chegavam a ficar arroxeadas. Sorver o sumo das que estavam “bem no ponto” era a delícia das delícias. Planta rasteira quase escondida no meio do capim.    
+**Ariticum, fruta-do-conde ou pinha** – Dava em árvores, muito saborosas. A atemóia, originária da região tropical do Peru  é uma variante híbrida desenvolvida a partir do cruzamento da cherimoia e a fruta do Conde.     
+**Melãozinho amarelo** – Quase no formato de um camarão, era uma gostosura chupar o melzinho do seu interior. Hoje é difundida como excelente remédio para diabetes, vermífugo, hipotensor (baixa a pressão arterial) anti reumático  etc. etc. etc.  Procure melão de São Caetano.     
+**Amora** – Esta proliferava nas grotas, aos lado dos riozinhos de água fresca, porquê eram sombreados pelas árvores do grotão. Com certeza nascidas de sementes levadas por pássaros, que ao defecar, contribuíam com o nascimento dessa deliciosa fruta. Existe uma variedade portuguesa, da qual tenho um exemplar, que dá uma amora gigante, quase 3 vezes maior que a que conhecemos.    
+**Indaiá do campo** – Era um pequeno arbusto que dava uns frutos  duros de quebrar, mas uma gostosura para comer. A polpa tinha o sabor do côco.   
+**Jataí** – Muito parecido com o ingá porém a polpa tem textura farinácea.    
+**Ingá** – Esta  dava em grandes árvores em formato de vagem, muito parecida com as do jatobá e do jataí.. Casca difícil de quebrar e a polpa podia ser consumida.     
+**Uva japonesa** – Ou uva do Japão ou tripa galinha (esse nome  eu não conhecia). Também uma árvore grande, com pequenos cachos que mastigados soltavam um melzinho na boca.   
+
 ## Restaurantes praianos
-###Boa Vista
+### Boa Vista
 Em São Vicente, famoso principalmente pelas suas enormes paellas. Vi um garçon carregando uma travessa fumegante de cerca de uns 80 centímetros. Explicou que servia de 12 a 15 pessoas. *Chose de lóc* como diria Jô Soares.
 
-###Vista ao Mar
+### Vista ao Mar
 Outro restaurante famoso pelos frutos do mar, camarões, peixadas com pirão ou caldeiradas, com as postas do peixe anjo nadando num molho de tomates e pimentões. Ficava perto de onde se toma a balsa para fazer a travessia para o Guarujá. Pesquisando no PG vi que em 2.020 iria completar meio século de existência. Mas o dono reclamava que Santos não era mais a mesma cidade fervilhante  dos tempos de brilho dos clubes Sírio Libanês, Atlântico, Caiçara, Ilha Porchat etc. todos falidos, segundo o dono, o  espanhol Agustin Alvarez Perez com 79 anos  em 2.020 e sem nenhuma vontade de fechar as portas, apesar das crises à que sobreviveu. Imagine-se agora em época de pandemia.  
 
-###Restaurante do Dalmo e depois do Joca
+### Restaurante do Dalmo e depois do Joca
 Este ficava em Bertioga, depois da travessia da balsa. Sua especialidade era o lambe-lambe: uma travessa de mariscos nadando no espesso molho de tomate e pimentões e você pegava o marisco com a mão mesmo, chupando o molusco junto com o caldo bem temperado. Rolava uma história que o Joca era um garçon que *bateu a carteira* do Dalmo, roubando sua mulher e assumindo a titularidade do estabelecimento. Abriu uma filial no Itaim em Sampa, mas teve breve trajetória.
 
-###Café Floresta
+### Café Floresta
 Um marco da cidade santista localizado na praça logo no início da Avenida Ana Costa, outro marco da cidade. Um café forte e bem tirado, de excelente paladar. Abriu uma filial na parte comercial do antológico Edifício  Copan, projeto de Niemeyer.
 
-###Rufino´s no Guarujá
+### Rufino´s no Guarujá
 Restaurante “classudo” na praia da Enseada, com grandes janelas envidraçadas dando vista para o mar. Eu só pedia o risoto com camarões “pistola” nadando num arroz bem molhado e ainda vinha com  ovos cozidos  que absorviam o caldo do camarão muito bem temperado. 
 
-##Restaurantes em Sorocaba e Região
+## Restaurantes em Sorocaba e Região
 
 **Piedade**
 
-###Bisão Dourado
+### Bisão Dourado
 Ficava bem no centro perto do Banco do Brasil. A construção era inteira de madeira, sustentada por grossas toras e janelas amplas e envidraçadas. O dono era o Shú, que me contou ter vindo muito em bailes em Salto de Pirapora. Não me lembro o nome do prato mas comia ali um filé mignon respeitável.
 
-###Piccin
+### Piccin
 Fora da cidade, no início da Rodovia, sentido Vila Élvio e Pilar do Sul. Um “self service” com excelentes assados: leitões, frangos, costelas etc. 
 
-###Estação Boca do Monte
+### Estação Boca do Monte
 Interessantíssimo montado no “corpo” de um avião e as mesas dando vista às matas circundantes pelas janelinhas quase ovaladas do avião. Apresentava uma boa cozinha japonesa. Da última vez que passei por lá estava em estado de abandono. 
 
-###Apiário, Capril e Fazenda de Camarões
+### Apiário, Capril e Fazenda de Camarões
 Durou pouco mas era um belo passeio. Na péssima estrada de terra que liga Piedade a Votorantim.  Lugar amplo com arvorismo e uma criação de camarões cinza da Malásia,  que eram servidos no restaurante embaixo das árvores, com espagheti ou em omeletes deliciosas. Tinha enormes tanques cobertos que mostravam as fases da criação do camarão. Me impressionou o tamanho de um reprodutor com longos bigodes. No capril podiam se ver os alegres cabritinhos pulando que nem crianças.
 
 **Araçoiaba da Serra**
 
-###Fazenda Campo Largo
+### Fazenda Campo Largo
 Um belíssimo espaço, tudo aberto e ótimo para tempos de pandemia. No estacionamento você deixa seu carro na sombra de frondosos  “fícus benjamin”. Debaixo de uma cobertura, sem paredes laterais mesas dispostas em frente a um palco onde rola música sertaneja ao vivo. Não é minha praia mas para poder dançar aceito qualquer ritmo. Um buffet no sistema “self service” de ótima qualidade e um coberto  ao ar livre com churrasqueiras diversas, incluindo as grelhas argentinas e uruguaias. Costela de chão em peças inteiras, linguiças das mais variadas, cupim etc etc. servidos à vontade. Pelo preço de R$ 50,00 representa um ótimo custo/benefício. Grandes gramados com redes de balanço para um cochilo depois da comilança e cama elástica para as crianças completam o cardápio de opções disponíveis. Se a música estiver convidativa para dançar eu dispenso o cochilo. 
 
-###Costela da Serra
+### Costela da Serra
 Quase  no centro da cidade num charmoso prédio que lembra um chalé é servido um respeitável e delicioso rodízio também no sistema “self service”
 
-###Fazenda Imperial
+### Fazenda Imperial
 No bairro do Jundiacanga um espaço igualmente fantástico, até maior que o Fazenda Campo Largo e trabalhando no mesmo sistema mas não cheguei a almoçar. 
 
-###Sítio Doce Campo
+### Sítio Doce Campo
 O lugar é mais interessante pelas instalações rurais do que propriamente pela comida. Casa de pau a pique com pé direito baixo: a Patrícia teve que curvar a cabeça para entrar. Mobiliada com móveis rústicos  antigos e dotada de bules, chaleiras e caneca rudimentares, típicas da roça. Tem também um fogão “de lenha”. É uma verdadeira imersão no passado, que tantos de nós carregamos das nossas raízes. Espaço amplo inclusive com animais para cavalgar. 
 
-##Restauranes do Além Mar
+## Restauranes do Além Mar
 
 ### Pedro dos Leitões
 Na região da  Bairrada, mais exatamente no bairro da Mealhada em Portugal se cultiva a tradição centenária do Leitão à Bairrada e ali proliferam mais de cem restaurantes do gênero, sendo o mais conhecido o tal de Pedro dos Leitões. É um leitão assado com características tipicamente portuguesas como o tempero e a maneira de assar. Os leitões são da família do *porco preto*, que são também levados para a Espanha para a confecção do famoso jamon *Pata Negra*, carésimo.  Outros pratos portugueses também famosos são a Espetada da Madeira que é um espeto de carne de boi em cubos, porém assado no espeto de louro, o que lhe dá um cheiro e sabor bem peculiares. Tem também o bacalhau às migas e a sardinha na brasa: Uma sardinha diferente das nossas, mais gorda e mais saborosa, assada com a barrigada, *cum tripa e tudo* que é depois retirada no prato.    
